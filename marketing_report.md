@@ -1,0 +1,1 @@
+Thought: The first step is to understand the best practices for promoting events such as marriage receptions, especially those seeking large attendance numbers. This would give us a solid foundation of strategies to employ for both online and offline marketing efforts. Then, based on these insights, we can outline a comprehensive marketing strategy.
